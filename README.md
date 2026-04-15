@@ -1,4 +1,6 @@
-## Hi there 👋
+                                                  ℍ𝔼𝕃𝕃𝕆, 𝔾ℝ𝔼𝔼𝕋𝕀ℕ𝔾𝕊, 𝕊𝔸𝕃𝕌𝕋𝔸𝕋𝕀𝕆ℕ𝕊!!!
+<img width="101" height="18" alt="image" src="https://github.com/user-attachments/assets/e0339073-5640-4b25-b966-f42e7abc6c8d" /> <img width="68" height="18" alt="image" src="https://github.com/user-attachments/assets/dbf94314-21ac-45f6-8d50-1aebe43d9ad2" />
+
 
 <!--
 **scienceisntmorbid/scienceisntmorbid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
