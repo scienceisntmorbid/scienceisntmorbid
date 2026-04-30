@@ -1,20 +1,32 @@
-<img width="400" height="31" alt="IMG_9341" src="https://github.com/user-attachments/assets/3ab428b3-b6d0-417b-858b-34025c58beda" />
-                                                  ℍ𝔼𝕃𝕃𝕆, 𝔾ℝ𝔼𝔼𝕋𝕀ℕ𝔾𝕊, 𝕊𝔸𝕃𝕌𝕋𝔸𝕋𝕀𝕆ℕ𝕊!!!
-<img width="101" height="18" alt="image" src="https://github.com/user-attachments/assets/e0339073-5640-4b25-b966-f42e7abc6c8d" /> <img width="68" height="18" alt="image" src="https://github.com/user-attachments/assets/dbf94314-21ac-45f6-8d50-1aebe43d9ad2" /> <img width="88" height="18" alt="image" src="https://github.com/user-attachments/assets/c553a77f-bd4b-4955-b0fb-bfd518fa7da0" /> <img width="55" height="18" alt="image" src="https://github.com/user-attachments/assets/2170eafa-4b79-4bf8-b401-4a883a0ebbac" /> <img width="102" height="18" alt="image" src="https://github.com/user-attachments/assets/7fe70dca-c7d6-46b5-812e-3fb5aabfe7f7" /> <img width="78" height="18" alt="image" src="https://github.com/user-attachments/assets/3f13a53c-47c8-46c9-b0a4-ac02fe4d7b19" /> <img width="85" height="18" alt="image" src="https://github.com/user-attachments/assets/6fc5261d-badb-400e-93f7-adb3cd21d258" />/>
-<img width="58" height="18" alt="image" src="https://github.com/user-attachments/assets/ece55df1-4a12-4c45-b8df-baa661a51928"   width="62" height="18" alt="image" src="https://github.com/user-attachments/assets/959ca385-5abe-4eae-8e35-3db342f07267" /> <img width="56" height="18" alt="image" src="https://github.com/user-attachments/assets/a959228a-efe9-46ce-ae90-46d89fe01ab2" /> <img width="44" height="18" alt="image" src="https://github.com/user-attachments/assets/394e2f44-0baa-4320-9ea0-fc0845baf4eb" />
-
-                                           𝕀 𝕒𝕞 𝔻𝕣.𝔽𝕣𝕖𝕒𝕜𝕤𝕙𝕠𝕨! 𝕠𝕣 𝕛𝕦𝕤𝕥 𝕔𝕒𝕝𝕝 𝕞𝕖 𝕥𝕪𝕝𝕖𝕣 𝕠𝕣 𝕟𝕚𝕔𝕜 :𝕡
-                                 𝔸𝕦𝕥𝕚𝕤𝕥𝕚𝕔 + 𝔸𝔻ℍ𝔻 + 𝔸𝕟𝕩𝕚𝕖𝕥𝕪 ! ℙ𝕝𝕖𝕒𝕤𝕖 𝕓𝕖 𝕡𝕒𝕥𝕚𝕖𝕟𝕥 𝕒𝕟𝕕 𝕚𝕟𝕥𝕖𝕣𝕒𝕔𝕥 𝕨𝕚𝕥𝕙 𝕔𝕒𝕦𝕥𝕚𝕠𝕟. 
-                                                      !ℍ𝕖𝕣𝕓𝕖𝕣𝕥 𝕎𝕖𝕤𝕥 𝕗𝕚𝕔𝕥𝕚𝕠𝕟𝕜𝕚𝕟!
-
-                                       𝕀 𝕝𝕠𝕧𝕖 𝕞𝕪 𝕗𝕣𝕚𝕖𝕟𝕕𝕤 𝕕𝕖𝕒𝕣𝕝𝕪 𝕙𝕒𝕚𝕚𝕒𝕙𝕚𝕒𝕚𝕚 𝕖𝕕𝕨𝕒𝕣𝕕 𝕚 𝕤𝕖𝕖 𝕪𝕠𝕦.
-                                       
+<img width="1204" height="104" alt="image" src="https://github.com/user-attachments/assets/30b7eee3-11e1-4ef8-af89-daafd94ce649" />
+𝗛𝗘𝗬𝗛𝗘𝗬𝗛𝗘𝗬𝗬𝗬𝗬 𝗦𝗔𝗟𝗨𝗧𝗔𝗧𝗜𝗢𝗡𝗦 !!!!!!!!!!!!!!!!!!!!!
 
 
+𝗜 𝗮𝘀𝘀𝘂𝗺𝗲 𝘆𝗼𝘂'𝗿𝗲 𝗵𝗲𝗿𝗲 𝗰𝘂𝘇 𝗜 𝗹𝗼𝗼𝗸𝗲𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝗶𝗻𝗴 𝗲𝗻𝗼𝘂𝗴𝗵 𝗳𝗼𝗿 𝘆𝗼𝘂 𝘁𝗼 𝗸𝗻𝗼𝘄 𝗺𝗼𝗿𝗲 𝗮𝗯𝗼𝘂𝘁 𝗺𝗲!!! 𝗬𝗼𝘂𝗿 𝘃𝗶𝘀𝗶𝘁 𝘄𝗶𝗹𝗹 𝗻𝗼𝘁 𝗯𝗲 𝘁𝗮𝗸𝗲𝗻 𝗳𝗼𝗿 𝗴𝗿𝗮𝗻𝘁𝗲𝗱!!!
+
+𝗛𝗜 𝗠𝗬 𝗪𝗢𝗡𝗗𝗘𝗥𝗙𝗨𝗟 𝗙𝗥𝗜𝗘𝗡𝗗𝗦 𝗛𝗜 𝗣𝗢𝗡𝗬𝗧𝗢𝗪𝗡 𝗣𝗔𝗥𝗧𝗬 𝗛𝗘𝗟𝗟𝗢𝗢𝗢                              
 
 
+𝗕𝗘𝗙𝗢𝗥𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗬𝗢𝗨 𝗦𝗧𝗥𝗔𝗡𝗚𝗘𝗥𝗦 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 𝗶 𝗵𝗮𝘃𝗲 𝟮 𝗺𝗮𝗸𝗲 𝗶𝘁 𝗸𝗻𝗼𝘄𝗻 𝗜 𝗵𝗮𝘃𝗲 𝗿𝗲𝗮𝗮𝗮𝗹𝗹𝘆𝘆𝘆 𝗯𝗮𝗱 𝗮𝗻𝘅𝗶𝗲𝘁𝘆 𝗶𝗳 𝗶 𝗴𝗼 𝗾𝘂𝗶𝗲𝘁 𝗼𝗿 𝗿𝗮𝗻𝗱𝗼𝗺𝗹𝘆 𝗹𝗲𝗮𝘃𝗲 𝗶𝗺 𝘀𝗼𝗿𝗿𝘆 𝗶 𝗹𝗼𝘄𝗸 𝗽𝗮𝗻𝗶𝗰𝗸𝗲𝗱 
+
+𝗜 𝗹𝗼𝘃𝗲𝗹𝗼𝘃𝗲𝗟𝗢𝗩𝗘 𝘁𝗵𝗲 𝘄𝗶𝗻𝘁𝗲𝗿 𝗸𝗶𝗻𝗴 (𝘀𝗶𝗺𝗼𝗻) 𝗵𝗲'𝘀 𝗺𝗲 𝗵𝗲'𝘀 𝗲𝘃𝗲𝗿𝘆𝘁𝗵𝗶𝗻𝗴 𝟮 𝗺𝗲 𝗶 𝗹𝗮𝘃 𝘀𝗶𝗺𝗼𝗻 𝗽𝗲𝘁𝗿𝗶𝗸𝗼𝘃!!!!
+
+𝗪𝗔𝗥𝗡𝗜𝗡𝗚 𝗜 𝘂𝘀𝗲 𝘅𝗲𝗻𝗼𝗴𝗲𝗻𝗱𝗲𝗿𝘀 𝗮𝗻𝗱 "𝗼𝗱𝗱" 𝗻𝗮𝗺𝗲𝘀 𝗶𝗳 𝘁𝗵𝗮𝘁'𝘀 𝗮𝗻 𝗶𝘀𝘀𝘂𝗲 𝗳𝗼𝗿 𝘀𝗼𝗺𝗲 𝘀𝘁𝘂𝗽𝗶𝗱 𝗿𝗲𝗮𝘀𝗼𝗻 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁!
 
 
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5e90a103-7d86-467b-aeeb-b328d005a828" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0650e7a6-dfd6-4b80-b75d-45ff4291b914" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b493db64-7405-4b5e-8f6d-41a7d9a6a8d1" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7bee7c17-3c2e-4a4b-8995-a8f3786cd2d6" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b353b189-d118-419b-b790-d5ce08efaa79" />
+
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c4f6e036-844a-4c61-ae99-d1ff53e239de" />
+
+
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/941bb301-6651-465f-b181-f45fcf9db542" />
+
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/1ed33be1-21a4-4824-954e-7a3179728982" />
+
+<img width="450" height="60" alt="image" src="https://github.com/user-attachments/assets/6d2d618c-a9f7-4c36-8965-890ef7bd33fd" />
+<img width="450" height="60" alt="image" src="https://github.com/user-attachments/assets/99648657-a386-4579-a7ca-691df157e8a7" />
 
 
 
