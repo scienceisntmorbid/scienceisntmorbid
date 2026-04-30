@@ -1,8 +1,10 @@
+
+
 <img width="1204" height="104" alt="image" src="https://github.com/user-attachments/assets/30b7eee3-11e1-4ef8-af89-daafd94ce649" />
 𝗛𝗘𝗬𝗛𝗘𝗬𝗛𝗘𝗬𝗬𝗬𝗬 𝗦𝗔𝗟𝗨𝗧𝗔𝗧𝗜𝗢𝗡𝗦 !!!!!!!!!!!!!!!!!!!!!
-
-
+<img width="78" height="18" alt="image" src="https://github.com/user-attachments/assets/60233e03-2579-4c15-a372-b03cd7316e2d" /><img width="72" height="18" alt="image" src="https://github.com/user-attachments/assets/7991b3f8-bd89-48d4-8ebc-97b903943a02" /> <img width="68" height="18" alt="image" src="https://github.com/user-attachments/assets/4e189c7b-6876-4ca0-831c-5cc6281d6b96" />
 𝗜 𝗮𝘀𝘀𝘂𝗺𝗲 𝘆𝗼𝘂'𝗿𝗲 𝗵𝗲𝗿𝗲 𝗰𝘂𝘇 𝗜 𝗹𝗼𝗼𝗸𝗲𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝗶𝗻𝗴 𝗲𝗻𝗼𝘂𝗴𝗵 𝗳𝗼𝗿 𝘆𝗼𝘂 𝘁𝗼 𝗸𝗻𝗼𝘄 𝗺𝗼𝗿𝗲 𝗮𝗯𝗼𝘂𝘁 𝗺𝗲!!! 𝗬𝗼𝘂𝗿 𝘃𝗶𝘀𝗶𝘁 𝘄𝗶𝗹𝗹 𝗻𝗼𝘁 𝗯𝗲 𝘁𝗮𝗸𝗲𝗻 𝗳𝗼𝗿 𝗴𝗿𝗮𝗻𝘁𝗲𝗱!!!
+<img width="400" height="62" alt="image" src="https://github.com/user-attachments/assets/e342b2be-8d78-4853-abd5-fff9bbce644a" />
 
 𝗛𝗜 𝗠𝗬 𝗪𝗢𝗡𝗗𝗘𝗥𝗙𝗨𝗟 𝗙𝗥𝗜𝗘𝗡𝗗𝗦 𝗛𝗜 𝗣𝗢𝗡𝗬𝗧𝗢𝗪𝗡 𝗣𝗔𝗥𝗧𝗬 𝗛𝗘𝗟𝗟𝗢𝗢𝗢                              
 
@@ -14,9 +16,11 @@
 𝗪𝗔𝗥𝗡𝗜𝗡𝗚 𝗜 𝘂𝘀𝗲 𝘅𝗲𝗻𝗼𝗴𝗲𝗻𝗱𝗲𝗿𝘀 𝗮𝗻𝗱 "𝗼𝗱𝗱" 𝗻𝗮𝗺𝗲𝘀 𝗶𝗳 𝘁𝗵𝗮𝘁'𝘀 𝗮𝗻 𝗶𝘀𝘀𝘂𝗲 𝗳𝗼𝗿 𝘀𝗼𝗺𝗲 𝘀𝘁𝘂𝗽𝗶𝗱 𝗿𝗲𝗮𝘀𝗼𝗻 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁!
 
 
+
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5e90a103-7d86-467b-aeeb-b328d005a828" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0650e7a6-dfd6-4b80-b75d-45ff4291b914" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b493db64-7405-4b5e-8f6d-41a7d9a6a8d1" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7bee7c17-3c2e-4a4b-8995-a8f3786cd2d6" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b353b189-d118-419b-b790-d5ce08efaa79" />
+<img width="124" height="64" alt="image" src="https://github.com/user-attachments/assets/80ce43d3-58e8-4abb-9fef-a578d61208ce" />
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c4f6e036-844a-4c61-ae99-d1ff53e239de" />
 
@@ -28,19 +32,5 @@
 <img width="450" height="60" alt="image" src="https://github.com/user-attachments/assets/6d2d618c-a9f7-4c36-8965-890ef7bd33fd" />
 <img width="450" height="60" alt="image" src="https://github.com/user-attachments/assets/99648657-a386-4579-a7ca-691df157e8a7" />
 
+ 
 
-
-<!--
-**scienceisntmorbid/scienceisntmorbid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
