@@ -1,3 +1,4 @@
+how do u make these look good
 <img width="300" height="40" alt="0272-disabledpride" src="https://github.com/user-attachments/assets/33f8d399-8255-47ba-80f0-39643c34b4ba" />
 <img width="300" height="40" alt="0271-chronicmigraines" src="https://github.com/user-attachments/assets/eb6dadeb-ab6f-4d9f-b9a4-e548cfb327fe" />
 <img width="300" height="40<img" alt="j1" src="https://github.com/user-attachments/assets/40c97d24-7d35-4267-a0f4-4a690d1fba11" />
