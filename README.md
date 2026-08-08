@@ -21,5 +21,6 @@
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀⠀⠀ ⠀  ⠀<img width="200" height="240" alt="tumblr_ca87438ead63af0ac7bd58828265e7d9_46b8ba74_400" src="https://github.com/user-attachments/assets/6fecde4b-56f9-45cf-99ed-277b5a87c68d" />
 
 
+⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀ i am THE winter king yumeshipper. dont even joke lad. winter king yume doubles do not interact/lh
 
-
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀   ⠀ ⠀⠀⠀ ⠀<img width="230" height="240" alt="IMG_2187" src="https://github.com/user-attachments/assets/963b074f-1cd6-4b19-84e2-c5411facfb0f" />
