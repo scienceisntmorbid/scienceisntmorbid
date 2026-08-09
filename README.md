@@ -10,7 +10,7 @@
 
 ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀<img width="700" height="22" alt="tumblr_1499802c3ff9fcbc5d101e126be184bb_16db3984_540" src="https://github.com/user-attachments/assets/b975f44d-a2cf-4b63-b58d-2371eae051aa" /> 
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀⠀ biggest nightmare before christmas fan you'll ever meet
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀⠀ biggest nightmare before christmas nerd you'll ever meet/srs
  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀⠀ ⠀   ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ transmasc + aroace + xenogenders  <img width="20" height="20" alt="mol8ly" src="https://github.com/user-attachments/assets/95f41e54-ef3f-4535-aefa-9fbaa3f0f990" /> autism + adhd + GAD
 
 
