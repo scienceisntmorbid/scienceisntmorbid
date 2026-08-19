@@ -15,12 +15,7 @@
  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀⠀ ⠀   ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ transmasc + aroace + xenogenders  <img width="20" height="20" alt="mol8ly" src="https://github.com/user-attachments/assets/95f41e54-ef3f-4535-aefa-9fbaa3f0f990" /> autism + adhd + GAD
 
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  REALLY into Project Hail Mary!!!! Ryland Grace kinnie... (perhaps fictionkin maybe?) ⠀
-
-
-⠀ ⠀ ⠀ ⠀ ⠀⠀
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀⠀⠀ ⠀  ⠀<img width="200" height="240" alt="tumblr_ca87438ead63af0ac7bd58828265e7d9_46b8ba74_400" src="https://github.com/user-attachments/assets/6fecde4b-56f9-45cf-99ed-277b5a87c68d" />
-
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
 
 ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀ i am THE winter king yumeshipper. dont even joke lad. winter king yume doubles do not interact/lh
 
