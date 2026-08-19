@@ -19,7 +19,6 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀ i am THE winter king yumeshipper. dont even joke lad. winter king yume doubles do not interact/lh
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀   ⠀ ⠀⠀⠀ ⠀<img width="230" height="240" alt="IMG_2187" src="https://github.com/user-attachments/assets/963b074f-1cd6-4b19-84e2-c5411facfb0f" />
 
 
  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ [pt hall of media ](https://github.com/pt-hall-of-media)⠀ [pt yumes](https://github.com/ponytown-yumes)
