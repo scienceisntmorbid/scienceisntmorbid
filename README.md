@@ -21,7 +21,7 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
 
-⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀ i am THE winter king yumeshipper. dont even joke lad. winter king yume doubles do not interact/lh
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀⠀ ⠀ ⠀ winter king yumeshipper!!  winter king yume doubles do not interact/lh
 
 
 
